@@ -1,1 +1,1 @@
-https://frc2881.github.io/
+https://frc2881.org
